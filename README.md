@@ -27,3 +27,8 @@ To the bonds we build, with stories of friendship forever told,
 In the warmth of the fire, we find our way,
 Embers of the night, forever stay.
 
+Through the laughter, through the tears,
+We chase away the darkest fears.
+In the circle of warmth, we stand as one,
+Until the dawn, until the night is done.
+
